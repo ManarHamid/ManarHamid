@@ -19,7 +19,7 @@ Social impact initiatives: I'm passionate about using my skills to make a positi
 
 Email: [manaralrasheedali@gmail.com]
 GitHub: @ManarHamid
-LinkedIn: [(https://www.linkedin.com/in/manar-hamid/)L]
+LinkedIn: [https://www.linkedin.com/in/manar-hamid]
  Pronouns: She/Her
 
 ⚡ Fun fact: I'm a fluent Arabic and English speaker and I love travel & Space explorations 
